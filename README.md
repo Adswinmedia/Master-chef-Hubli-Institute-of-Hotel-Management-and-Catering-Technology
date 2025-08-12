@@ -1,0 +1,1 @@
+A one-year Diploma in Hotel Management with Culinary Arts designed to combine cooking mastery with hospitality management skills. Learn the art of gourmet food preparation, customer service, and hotel operations.
